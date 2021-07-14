@@ -1,5 +1,5 @@
 # md.youhavewhat
 
-> 贩毒的人从来不吸毒 开赌场的人从来不赌博
+> 自省 自驱 自信
 
 [Get Started](README.md)
